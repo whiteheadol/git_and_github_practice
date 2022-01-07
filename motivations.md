@@ -1,0 +1,1 @@
+I am motivated to change my career because although I love the fast paced energy at my current job, it is not something that I want to do forever. Additionally, during the pandemic, I did not feel safe or supported in my working conditions, and I don't want to feel like that again.
