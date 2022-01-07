@@ -1,0 +1,1 @@
+I have been luck and had the ability to spend two chunks of time living with different families oversees. When I was fifteen, I spent a summer in Oban, Scotland; and when I was 20, I spent the same amount of time in Southern Italy. These experiences are tied for my favorite time traveling.
